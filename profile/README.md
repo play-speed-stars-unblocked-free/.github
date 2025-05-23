@@ -13,6 +13,8 @@ I’ve played Speed Stars on Steam, on mobile, and on browser. And honestly? The
 * Instant play on both mobile and PC
 * Ideal for study breaks or quick escapes
 
+👉 **[Play it free, no downloads, no restrictions, right here!](https://1kb.link/ianQKG)**
+
 ## A Racer Where Every Tap Counts
 
 I came across Speed Stars expecting a short diversion—and ended up chasing my own lap times for hours. This isn’t a racing game about stomping the gas. It’s about **tuning in to tempo**, syncing your reactions, and finding flow in motion.
